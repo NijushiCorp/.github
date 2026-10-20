@@ -1,4 +1,4 @@
-# NIJUSHI DIGITAL
+# NIJUSHI CORP.
 <h3>Your World, Your Decision</h3>
 <br/>
 
@@ -10,9 +10,9 @@ We are a studio company that provided various services and services that can hel
 ## Check Our Other Social Media
 [🌐 Website](https://nijushidigital.biz.id)
 
-[📷 Instagram](https://instagram.com/nijushidigital)
+[📷 Instagram](https://instagram.com/nijushicorp)
 
-[👤 Facebook](https://www.facebook.com/share/18hraJLfcU/)
+[👤 Facebook](https://www.facebook.com/nijushicorp/)
 
 <br/>
 
